@@ -1,5 +1,3 @@
-Chapter 9: Addressing Workplace Diversity and Inclusion
-=======================================================
 
 Diversity and inclusion are critical components of creating a thriving workplace culture that promotes employee engagement and organizational success. In this chapter, we will explore the importance of workplace diversity and inclusion, strategies for promoting diversity and inclusion, and how to create an inclusive workplace culture.
 

@@ -1,5 +1,3 @@
-How Workplace Culture Affects Employee Engagement
-========================================================================================
 
 Workplace culture is a critical element of organizational success, and it has a significant impact on employee engagement, productivity, and satisfaction. In this chapter, we will explore how workplace culture affects employee engagement.
 

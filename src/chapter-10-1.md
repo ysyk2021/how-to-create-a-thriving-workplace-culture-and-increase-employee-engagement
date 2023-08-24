@@ -1,5 +1,3 @@
-The Importance of Communication and Collaboration
-=====================================================
 
 Effective communication and collaboration are essential for creating a thriving workplace culture and increasing employee engagement. Here's why:
 

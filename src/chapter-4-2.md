@@ -1,5 +1,3 @@
-Developing Core Values and Mission Statements
-===============================================================================================
 
 In this chapter, we will discuss the importance of core values and mission statements in building a positive workplace culture. We will explore what core values and mission statements are, why they are important, and how to develop them effectively.
 

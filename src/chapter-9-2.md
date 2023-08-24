@@ -1,5 +1,3 @@
-Strategies for Promoting Diversity and Inclusion
-=========================================================================================================
 
 In this chapter, we will discuss the importance of workplace diversity and inclusion, the benefits of a diverse and inclusive workplace, and strategies for promoting workplace diversity and inclusion.
 

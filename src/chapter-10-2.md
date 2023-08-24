@@ -1,5 +1,3 @@
-Strategies for Improving Communication and Collaboration
-=====================================================
 
 Effective communication and collaboration are essential for creating a thriving workplace culture and increasing employee engagement. Here are some strategies for improving communication and collaboration in your organization:
 

@@ -1,5 +1,3 @@
-Strategies for Building a Positive Workplace Culture
-======================================================================================================
 
 In this chapter, we will explore strategies for building a positive workplace culture. We will discuss key elements of a positive culture and provide actionable steps that organizations can take to create a thriving work environment.
 

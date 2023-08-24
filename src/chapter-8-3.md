@@ -1,5 +1,3 @@
-Best Practices for Recognition and Rewards
-==========================================================================================
 
 In this chapter, we will explore best practices for recognizing and rewarding employees. We will discuss the importance of recognition and rewards, different types of recognition and rewards, and strategies for implementing an effective recognition and reward program.
 

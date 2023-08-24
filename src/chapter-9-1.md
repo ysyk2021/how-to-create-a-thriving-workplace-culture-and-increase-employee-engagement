@@ -1,5 +1,3 @@
-The Importance of Diversity and Inclusion in the Workplace
-===================================================================================================================
 
 In this chapter, we will discuss the importance of workplace diversity and inclusion and how it can positively impact employee engagement and organizational success.
 

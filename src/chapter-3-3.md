@@ -1,5 +1,3 @@
-Feedback and Employee Surveys
-==========================================================================
 
 In this chapter, we will explore the importance of assessing your workplace culture and how to do so effectively. We will discuss various methods for gathering feedback from employees and the benefits of using employee surveys as a tool for assessment.
 

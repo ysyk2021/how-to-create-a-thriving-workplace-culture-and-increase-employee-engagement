@@ -1,5 +1,3 @@
-Identifying Strengths and Weaknesses of Your Workplace Culture
-===========================================================================================================
 
 In this chapter, we will discuss how to assess your workplace culture and identify its strengths and weaknesses. We will explore the importance of assessing workplace culture, common methods for conducting cultural assessments, and strategies for using the results to improve your workplace culture.
 

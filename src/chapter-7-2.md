@@ -1,5 +1,3 @@
-Strategies for Promoting Work-Life Balance
-====================================================================================
 
 In this chapter, we will discuss the importance of work-life balance and strategies that organizations can use to promote it in the workplace. We will explore the benefits of work-life balance, common challenges, and best practices for creating a culture that supports work-life balance.
 

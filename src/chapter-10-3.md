@@ -1,5 +1,3 @@
-Techniques for Effective Team Communication
-==================================================================================================
 
 Effective team communication is vital to building a positive and productive workplace culture. In this chapter, we will explore the importance of effective team communication, collaboration techniques, and strategies for improving communication in the workplace.
 

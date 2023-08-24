@@ -1,5 +1,3 @@
-Chapter 2: Defining Workplace Culture
-=====================================
 
 Defining workplace culture is essential to creating a positive and thriving work environment. In this chapter, we will explore what workplace culture means, the elements that make up workplace culture, and how it affects employee engagement.
 

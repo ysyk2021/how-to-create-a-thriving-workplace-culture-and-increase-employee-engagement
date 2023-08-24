@@ -1,5 +1,3 @@
-Creating an Inclusive Workplace Culture
-================================================================================================
 
 Creating a diverse and inclusive workplace culture is essential for promoting employee engagement, improving performance, and achieving organizational success. In this chapter, we will explore the importance of workplace diversity and inclusion, the benefits of creating an inclusive workplace culture, and strategies for achieving diversity and fostering inclusion.
 

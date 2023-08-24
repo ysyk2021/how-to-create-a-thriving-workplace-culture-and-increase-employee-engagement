@@ -1,5 +1,3 @@
-Definition of Workplace Culture
-======================================================================
 
 Workplace culture is the shared values, beliefs, attitudes, and practices that shape the behaviors and interactions of individuals within an organization. It encompasses the norms and expectations that govern how employees communicate, collaborate, and make decisions. Workplace culture can have a significant impact on employee engagement, job satisfaction, and overall organizational performance.
 

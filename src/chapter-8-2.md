@@ -1,5 +1,3 @@
-Types of Recognition and Reward Programs
-========================================================================================
 
 In this chapter, we will explore the importance of recognizing and rewarding employees for their contributions to a thriving workplace culture. We will discuss different types of recognition and reward programs and how they can be used to motivate and engage employees.
 

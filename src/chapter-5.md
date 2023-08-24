@@ -1,5 +1,3 @@
-Chapter 5: Fostering Employee Engagement
-========================================
 
 Employee engagement is critical to creating a thriving workplace culture that promotes organizational success. In this chapter, we will explore the definition of employee engagement, the importance of employee engagement, and strategies for fostering it.
 

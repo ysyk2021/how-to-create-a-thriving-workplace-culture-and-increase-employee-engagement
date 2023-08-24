@@ -1,5 +1,3 @@
-Methods for Assessing Workplace Culture
-====================================================================================
 
 In this chapter, we will discuss the various methods for assessing workplace culture. We will explore the benefits and limitations of each method and provide guidance on selecting the best method for your organization.
 

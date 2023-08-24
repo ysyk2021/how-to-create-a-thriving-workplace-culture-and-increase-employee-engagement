@@ -1,5 +1,3 @@
-Encouraging Continuous Learning
-==========================================================================================
 
 One of the key components of creating a thriving workplace culture and increasing employee engagement is providing opportunities for professional growth. Employees who feel like they are developing their skills and growing in their careers are typically more engaged and committed to their work. This chapter will provide strategies for creating opportunities for professional growth and encouraging continuous learning.
 

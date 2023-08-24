@@ -1,5 +1,3 @@
-The Importance of Work-Life Balance
-=============================================================================
 
 In this chapter, we will explore the importance of work-life balance and how it contributes to a thriving workplace culture. We will provide guidance on how to encourage work-life balance in your organization and benefits that result from it.
 

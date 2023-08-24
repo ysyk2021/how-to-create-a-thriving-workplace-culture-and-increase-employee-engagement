@@ -1,5 +1,3 @@
-Chapter 4: Building a Positive Workplace Culture
-================================================
 
 A positive work culture is essential to creating an environment that fosters employee engagement, productivity, and innovation. In this chapter, we will explore strategies for building a positive workplace culture, developing core values and mission statements, and encouraging collaboration and teamwork.
 

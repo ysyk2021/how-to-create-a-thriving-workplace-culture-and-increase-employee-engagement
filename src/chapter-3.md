@@ -1,5 +1,3 @@
-Chapter 3: Assessing Your Workplace Culture
-===========================================
 
 Assessing your workplace culture is the first step in creating a thriving and positive work environment. In this chapter, we will explore methods for assessing workplace culture, identifying strengths and weaknesses, and collecting feedback from employees.
 

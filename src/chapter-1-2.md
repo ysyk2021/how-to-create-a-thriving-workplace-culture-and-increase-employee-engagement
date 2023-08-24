@@ -1,5 +1,3 @@
-Benefits of a Thriving Workplace Culture
-=================================================================
 
 A thriving workplace culture is essential for organizational success. It creates an environment where employees are engaged, motivated, and committed to their work. In this chapter, we will explore the benefits of a thriving workplace culture.
 

@@ -1,5 +1,3 @@
-Definition of Employee Engagement
-===========================================================================
 
 In this chapter, we will define employee engagement and explore its importance for creating a thriving workplace culture. We will discuss the key components of employee engagement and provide guidance on fostering employee engagement in your organization.
 

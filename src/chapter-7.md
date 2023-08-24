@@ -1,5 +1,3 @@
-Chapter 7: Encouraging Work-Life Balance
-========================================
 
 Encouraging work-life balance is essential for employee well-being, productivity, and retention in the workplace. In this chapter, we will explore the importance of work-life balance, strategies for promoting work-life balance, and offering flexible work arrangements.
 

@@ -1,5 +1,3 @@
-The Elements that Make up Workplace Culture
-==================================================================================
 
 Workplace culture refers to the shared values, beliefs, attitudes, and behaviors that define an organization and influence how people interact with one another. It is a critical element of organizational success and has a significant impact on employee engagement, job satisfaction, and overall performance. In this chapter, we will explore the key elements that make up workplace culture.
 

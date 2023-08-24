@@ -1,5 +1,3 @@
-Overview of the Book
-=============================================
 
 In today's fast-paced business world, creating a workplace culture that fosters employee engagement and satisfaction is key to achieving organizational success. This book is designed to provide practical strategies for creating a thriving workplace culture that supports employee growth and well-being while driving organizational performance.
 

@@ -1,5 +1,3 @@
-Encouraging Collaboration and Teamwork
-========================================================================================
 
 In this chapter, we will discuss the importance of collaboration and teamwork in building a positive workplace culture. We will explore the benefits of collaboration, common obstacles to collaboration, and strategies for fostering collaboration and teamwork within an organization.
 
