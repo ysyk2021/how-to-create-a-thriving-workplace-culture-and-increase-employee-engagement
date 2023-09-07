@@ -6,3 +6,7 @@ This book, "How to Create a Thriving Workplace Culture and Increase Employee Eng
 Whether you are an HR professional, business owner, or manager, this book will provide valuable insights and tools for creating a positive work environment that supports the success and well-being of your employees. By creating a thriving workplace culture and promoting employee engagement, organizations can achieve long-term success and build a strong foundation for growth and innovation.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
