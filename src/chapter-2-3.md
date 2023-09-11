@@ -1,5 +1,4 @@
-Chapter 3: How Workplace Culture Affects Employee Engagement
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Employee engagement is crucial to the success of any organization. It refers to the emotional and intellectual commitment employees have towards their work, their team, and the organization as a whole. In this chapter, we will explore how workplace culture influences employee engagement and why it is essential to create a positive culture that fosters engagement.
 

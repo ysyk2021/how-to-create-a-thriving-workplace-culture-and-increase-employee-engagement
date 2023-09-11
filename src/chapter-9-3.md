@@ -1,5 +1,4 @@
-Chapter 7: Creating an Inclusive Workplace Culture
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating an inclusive workplace culture is essential for fostering employee engagement, promoting collaboration, and driving organizational success. This chapter explores key strategies for building an environment where diversity is celebrated, and every individual feels respected, valued, and empowered to contribute their best.
 

@@ -1,5 +1,4 @@
-Chapter 7: Offering Flexible Work Arrangements
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's ever-changing work landscape, offering flexible work arrangements has become increasingly important for creating a thriving workplace culture and increasing employee engagement. This chapter explores the benefits of flexible work arrangements and provides insights on implementing them effectively.
 

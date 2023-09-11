@@ -1,5 +1,4 @@
-Chapter 3: Definition of Workplace Culture
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Workplace culture is the shared values, beliefs, behaviors, and practices that shape the overall work environment within an organization. It encompasses the attitudes, norms, and relationships among employees, as well as the organization's mission, vision, and core values. In this chapter, we will delve into the definition of workplace culture and explore its importance in creating a thriving and engaging work environment.
 

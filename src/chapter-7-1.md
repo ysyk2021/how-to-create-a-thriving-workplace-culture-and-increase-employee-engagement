@@ -1,5 +1,4 @@
-Chapter 6: The Importance of Work-Life Balance
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Achieving a healthy work-life balance is essential for both employees and organizations. In this chapter, we will explore the significance of work-life balance in creating a thriving workplace culture and increasing employee engagement.
 

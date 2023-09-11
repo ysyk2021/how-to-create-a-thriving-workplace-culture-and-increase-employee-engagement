@@ -1,5 +1,4 @@
-Chapter 11: Encouraging Collaboration and Teamwork
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Collaboration and teamwork are essential components of a thriving workplace culture and can significantly contribute to increased employee engagement. When employees work together effectively and cohesively, they are more likely to achieve shared goals, foster creativity, and enhance overall productivity. In this chapter, we will explore strategies for encouraging collaboration and teamwork within your organization.
 

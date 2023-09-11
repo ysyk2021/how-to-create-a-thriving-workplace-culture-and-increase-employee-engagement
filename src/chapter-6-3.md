@@ -1,5 +1,4 @@
-Chapter 10: Encouraging Continuous Learning
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Continuous learning is essential for creating a thriving workplace culture and increasing employee engagement. When employees have opportunities to learn and grow, they feel more motivated, challenged, and invested in their work. In this chapter, we will explore strategies for encouraging continuous learning within your organization.
 

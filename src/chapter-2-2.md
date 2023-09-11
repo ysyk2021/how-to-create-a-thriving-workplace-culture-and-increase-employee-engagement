@@ -1,5 +1,4 @@
-Chapter 2: The Elements That Make Up Workplace Culture
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Workplace culture is a complex and multi-faceted concept that encompasses various elements. Understanding these elements is essential for creating and nurturing a thriving workplace culture. In this chapter, we will explore the key components that make up workplace culture and how they contribute to the overall organizational environment.
 

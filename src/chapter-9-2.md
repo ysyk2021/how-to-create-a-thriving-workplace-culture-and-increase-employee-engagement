@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Promoting Diversity and Inclusion
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Promoting diversity and inclusion in the workplace requires proactive efforts and a commitment to creating an environment where everyone feels valued and respected. This chapter explores effective strategies for fostering diversity and inclusion within organizations.
 

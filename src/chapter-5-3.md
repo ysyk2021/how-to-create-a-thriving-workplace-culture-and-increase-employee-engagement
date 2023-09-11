@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Fostering Employee Engagement
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a thriving workplace culture requires a strong focus on employee engagement. Engaged employees are more committed, productive, and satisfied with their work. This chapter discusses effective strategies for fostering employee engagement and creating a positive and motivating work environment.
 

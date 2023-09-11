@@ -1,5 +1,4 @@
-Chapter 5: The Importance of Diversity and Inclusion in the Workplace
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Diversity and inclusion are essential components of creating a thriving workplace culture and increasing employee engagement. This chapter explores why diversity and inclusion matter in the workplace and highlights their significant benefits.
 

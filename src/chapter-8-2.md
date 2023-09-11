@@ -1,5 +1,4 @@
-Chapter 8: Types of Recognition and Reward Programs
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Recognition and reward programs play a vital role in creating a thriving workplace culture and increasing employee engagement. This chapter will explore various types of recognition and reward programs that organizations can implement to motivate and appreciate their employees.
 

@@ -1,5 +1,4 @@
-Chapter 9: Best Practices for Recognition and Rewards
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Recognition and rewards are powerful tools for creating a thriving workplace culture and increasing employee engagement. This chapter will explore best practices that organizations can follow to ensure their recognition and rewards programs are effective, meaningful, and impactful.
 

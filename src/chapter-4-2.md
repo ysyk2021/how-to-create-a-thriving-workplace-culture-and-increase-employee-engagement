@@ -1,5 +1,4 @@
-Chapter 12: Developing Core Values and Mission Statements
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to create a thriving workplace culture and increase employee engagement, it is essential for organizations to develop clear core values and mission statements that align with their vision and goals. Core values and mission statements provide a foundation for decision-making, guide behavior, and help shape the organization's identity. In this chapter, we will explore the importance of developing core values and mission statements and provide guidance on how to create them effectively.
 

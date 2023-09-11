@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Building a Positive Workplace Culture
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A positive workplace culture is crucial for fostering employee engagement, satisfaction, and productivity. When employees feel valued, supported, and connected to their organization, they are more likely to be motivated and perform at their best. In this chapter, we will explore strategies for building and maintaining a positive workplace culture.
 

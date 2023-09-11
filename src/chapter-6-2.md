@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Providing Professional Development
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Professional development plays a crucial role in creating a thriving workplace culture and increasing employee engagement. When employees have opportunities to grow, learn new skills, and advance their careers, they are more likely to feel valued, motivated, and committed to their work. In this chapter, we will explore strategies for providing effective professional development opportunities within your organization.
 

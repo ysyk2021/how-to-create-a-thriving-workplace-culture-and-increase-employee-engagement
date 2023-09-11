@@ -1,5 +1,4 @@
-Chapter 5: The Importance of Recognition and Rewards
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Recognition and rewards play a pivotal role in creating a thriving workplace culture and increasing employee engagement. This chapter emphasizes the significance of recognition and rewards, exploring how they impact employees and contribute to overall organizational success.
 
